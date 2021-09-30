@@ -1,1 +1,1 @@
-there was an alien named alphered pull .with 3heads.he had already captured 5 planets on taskar.and the greek planet was worried that the alphered will capture their planet as well.so the leader of that planet sent a huge army .
+there was an alien named alphered pull .with 3heads.he had already captured 5 planets on taskar.and the greek planet was worried that the alphered will capture their planet as well.so the leader of that planet sent a huge army .noopu
